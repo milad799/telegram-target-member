@@ -48,4 +48,4 @@ Ready to see your Telegram group grow with real members? Contact us now to get s
 ## Contact Information
 If you have any questions or need support, feel free to reach out:
 - **Email**: miladlotfiniya7@gmail.com
-- **Telegram**: [https://t.me/wht_gp/430794](https://t.me/wht_gp/430794)
+- **Telegram**: [https://t.me/Milad_service_s](https://t.me/Milad_service_s)
